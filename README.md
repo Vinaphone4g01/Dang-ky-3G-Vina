@@ -1,2 +1,3 @@
 # Dang-ky-3G-Vina
 Mạng 3G của VinaPhone có giá rẻ từ 3.000đ mỗi ngày ưu đĩa 2GB hoặc gói tháng ưu đãi đến 180GB mỗi tháng. Tùy vào nhu cầu sử dụng, khách hàng có thể lựa chọn cho mình gói cước phù hợp để đăng ký ngay nhé.
+<p style="text-align: justify;"><strong><a href="https://vinaphone4g.net/dang-ky-3g-vinaphone">Đăng ký mạng 3G VinaPhone</a></strong> là lựa chọn của nhiều khách hàng khi có nhu cầu sử dụng mạng giá rẻ. So với mạng 4G, tốc độ 3G load không nhanh bằng nhưng ổn định và ít hao hụt hơn rất nhiều. Vậy làm sao để đăng ký mạng 3G giá rẻ sử dụng ? Cùng <a href="https://vinaphone4g.net/">vinaphone4g.net</a> tìm hiểu chi tiết trong bài viết dưới đây.</p>
